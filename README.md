@@ -1,3 +1,4 @@
+Cybersecurity Law Second Edition by Jeff Kosseff
 ### **Cybersecurity Law and Its Implications for Everyone**  
 *Understanding the Legal Boundaries of a Digital World*  
 
